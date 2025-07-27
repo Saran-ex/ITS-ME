@@ -16,6 +16,6 @@ This repository showcases part of my work and serves as a way to connect with me
 
 🔗 GitHub: (https://github.com/Saran-ex)
 
-💼 LinkedIn: linkedin.com/in/saran-p-bb9b63331
+💼 LinkedIn: (https://linkedin.com/in/saran-p-bb9b63331)
 
 Thanks for checking out my profile! Feel free to reach out.
